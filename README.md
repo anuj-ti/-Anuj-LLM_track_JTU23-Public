@@ -8,4 +8,4 @@ Doc link: https://docs.google.com/document/d/12TrnOmXuGGIZFc79zROIkxDuHQoCHfBTYR
 Doc link: https://docs.google.com/document/d/1dOH5BtkhRWwOjxVw0w8iIh0Gt8BiohIAZeq0SXV9YNQ/edit?usp=sharing
 
 ### Milestone 3
-Doc link: 
+Doc link: https://docs.google.com/document/d/1t9I2HG4HKHajD8FtLUB4xdN8mHMbVFlePWmT9t-pZRo/edit?usp=sharing
